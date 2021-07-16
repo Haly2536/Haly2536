@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Haly2536
+- 👀 I’m interested in learn about kali linux
